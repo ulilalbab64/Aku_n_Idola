@@ -1,0 +1,1 @@
+# aku_n_idola
